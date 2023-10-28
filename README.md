@@ -1,0 +1,2 @@
+this projects is aimed at creating supportive community for entrance takers, 
+In 2022/23 Acadamic calender there was low pass rate in Ethiopia and most passed students were from more capital city and more developed city
